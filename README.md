@@ -1,6 +1,7 @@
 Wagwan boss men I'm Jordan
 
 Mans currently learning C#, Java, some other things cba to list
+
 Discord: voice#0001
 
 <!---
